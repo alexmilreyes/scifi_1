@@ -17,21 +17,23 @@ Deities
 Zemi or zemi Figures: These were physical representations of deities or ancestral spirits, often crafted from wood or stone. Zemis were central to religious practices, used in ceremonies, and believed to hold power to communicate with the spiritual world.
 
 Mythological Creatures and Spirits
+
 Opia: Spirits of the dead, believed to linger in the world of the living, especially around caves or in the forest. They could be benign or malevolent.
+
 Duendes: Small, goblin-like spirits, tricksters who lived in the forest or near rivers. They could be mischievous or helpful depending on how they were treated.
+
 Cemi: Similar to zemis but often more localized spirits or lesser deities that might inhabit natural objects like rocks or trees.
 
 Rituals and Practices
 Cohoba Ceremony: A significant religious practice involving the inhalation of cohoba, a hallucinogenic snuff, to induce visions and communicate with the gods or ancestors.
+
 Areito: Ceremonial dances and songs performed during various rites, including those for fertility, war, or mourning. These were communal events that reinforced social bonds and spiritual connection.
 Cacibajagua: A legendary island of the dead, where souls went after death to spend eternity, often depicted as a paradise.
 
-Creation Myths
-One myth tells of a giant woman or goddess, sometimes identified with Atabey, from whose body the islands of the Caribbean were formed. 
+Creation Myths: One myth tells of a giant woman or goddess, sometimes identified with Atabey, from whose body the islands of the Caribbean were formed. 
 Another story describes the world as initially being covered in water, with the earth being formed from mud brought up from beneath the water by a creature or god.
 
-Cultural Impact
-Arawak mythology has influenced the cultural folklore of the Caribbean, with many elements still present in local stories, dances, and religious practices. The blending of these myths with Christian narratives post-colonization also created unique syncretic beliefs.
+Cultural Impact: Arawak mythology has influenced the cultural folklore of the Caribbean, with many elements still present in local stories, dances, and religious practices. The blending of these myths with Christian narratives post-colonization also created unique syncretic beliefs.
 
 Arawak mythology not only provided explanations for natural phenomena and the structure of the universe but also served as a moral compass and cultural identity for the Taíno and other Arawak peoples. Their myths are a testament to their deep connection with nature and the spiritual realm.
 
