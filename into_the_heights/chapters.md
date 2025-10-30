@@ -1,12 +1,12 @@
-Here's an updated outline for Rhythms of the Concrete Jungle where the setting changes to Mateo's uncle's garage, and his father works at the Dominican Republic Consulate:
+Here's an updated outline for Rhythms of the Concrete Jungle where the setting changes to Marcello's uncle's garage, and his father works at the Dominican Republic Consulate:
 
 Chapter 1: Beats in the Garage
-Introduction: Meet Mateo, living in Washington Heights, often found in his uncle's garage, which acts as a makeshift workshop and hangout spot.
-Inciting Incident: While rummaging through old boxes in the garage, Mateo finds an intriguing map hidden in a record sleeve.
+Introduction: Meet Marcello, living in Washington Heights, often found in his uncle's garage, which acts as a makeshift workshop and hangout spot.
+Inciting Incident: While rummaging through old boxes in the garage, Marcello finds an intriguing map hidden in a record sleeve.
 
 Chapter 2: The Crew Gathers
-Character Introductions: Mateo introduces his friends, Lola, Carlos, and Ana, to the map. His uncle's garage becomes their planning base.
-The Plan: They decide to follow the map, not just for the adventure but to uncover stories of their heritage, given Mateo's father's absence due to his work at the Dominican Republic Consulate.
+Character Introductions: Marcello introduces his friends, Lola, Carlos, and Ana, to the map. His uncle's garage becomes their planning base.
+The Plan: They decide to follow the map, not just for the adventure but to uncover stories of their heritage, given Marcello's father's absence due to his work at the Dominican Republic Consulate.
 
 Chapter 3: Gadgets from the Garage
 Lola's Creations: Using parts from the garage, Lola showcases her latest gadgets, including the Map-Reader Compass, tailored for their urban quest.
@@ -26,7 +26,7 @@ Puzzle Solving: They use Ana's knowledge and Lola's tech to solve a puzzle relat
 
 Chapter 7: Echoes of Heritage
 Cultural Discovery: They stumble upon an old, forgotten community space filled with artifacts of Dominican life, giving them a new perspective on their roots.
-Reflection: Mateo reflects on his identity, feeling the absence of his father but finding strength in his heritage.
+Reflection: Marcello reflects on his identity, feeling the absence of his father but finding strength in his heritage.
 
 Chapter 8: The Beat of Deception
 Distraction: They use a local block party and the "Bachata Beat Alert" to slip away from El Jefe's watchful eyes.
@@ -46,10 +46,10 @@ Redemption: El Jefe shares his side, showing a desire to protect rather than har
 
 Chapter 12: Rhythms of Reconciliation
 Resolution: The artifacts lead to the revitalization of the old space as a cultural center, celebrating Dominican and local culture.
-Celebration: A community event where the fusion of cultures is celebrated, with Mateo connecting deeply with his heritage.
+Celebration: A community event where the fusion of cultures is celebrated, with Marcello connecting deeply with his heritage.
 
 Chapter 13: New Rhythms, Old Stories
 Epilogue: The group reflects on their journey, the bonds formed, and the importance of preserving their cultural stories.
-Future Hopes: They discuss future adventures or projects to keep their community's history alive, with Mateo feeling more connected despite his father's absence.
+Future Hopes: They discuss future adventures or projects to keep their community's history alive, with Marcello feeling more connected despite his father's absence.
 
 This outline maintains the core themes of adventure, cultural exploration, and personal growth while adapting to the new setting and family dynamics, offering a rich narrative for young readers.

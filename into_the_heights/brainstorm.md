@@ -12,9 +12,11 @@ These locations will have artifacts and seret rooms that lead them to the treasu
 
 Here are some intriguing plot twists and mechanisms that can enhance a treasure hunt story like Rhythms of the Concrete Jungle:
 
-Plot Twists:
+Possible Plot Twists:
 - The Treasure is a Red Herring: The group discovers that the treasure they've been hunting is not the true prize. The real treasure is something of cultural or personal significance, like documents proving land rights or a lost piece of art that represents community heritage.
+
 - A Betrayal Among Friends: One of the crew members, perhaps under duress or for personal gain, betrays the group to the antagonist or another faction, only to have a change of heart later, leading to redemption.
+
 - The Map is Incomplete: The map they've been using turns out to be just one part of a set. They need to find or solve for the other pieces, which might involve different groups or even international travel back to the Dominican Republic.
 - Time-Sensitive Clue: One clue they find has a deadline attached, perhaps a date or an event that must occur for the next clue to be revealed, adding urgency to their quest.
 - The Antagonist's True Motive: El Jefe, presumed to be just after the treasure, is actually trying to protect something sacred to the community, misunderstood due to his methods. His actions lead to a moral dilemma for the group.
