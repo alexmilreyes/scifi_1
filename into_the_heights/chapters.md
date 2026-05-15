@@ -2,11 +2,11 @@ Here's an updated outline for Rhythms of the Concrete Jungle where the setting c
 
 Chapter 1: Beats in the Garage
 Introduction: Meet Marcello, living in Washington Heights, often found in his uncle's garage, which acts as a makeshift workshop and hangout spot.
-Inciting Incident: While rummaging through old boxes in the garage, Marcello finds an intriguing map hidden in a record sleeve.
+Inciting Incident: While rummaging through old boxes in the garage, Marcello finds an intriguing map hidden in a record sleeve. The map seems connected to Dominican exiles in 1950s New York and points toward a hidden draft constitution.
 
 Chapter 2: The Crew Gathers
 Character Introductions: Marcello introduces his friends, Lola, Carlos, and Ana, to the map. His uncle's garage becomes their planning base.
-The Plan: They decide to follow the map, not just for the adventure but to uncover stories of their heritage, given Marcello's father's absence due to his work at the Dominican Republic Consulate.
+The Plan: They decide to follow the map, not just for the adventure but to uncover stories of their heritage, given Marcello's father's absence due to his work at the Dominican Republic Consulate and the possibility that the treasure is a democracy-making document hidden during Trujillo's era.
 
 Chapter 3: Gadgets from the Garage
 Lola's Creations: Using parts from the garage, Lola showcases her latest gadgets, including the Map-Reader Compass, tailored for their urban quest.
@@ -25,8 +25,8 @@ Urban Adventure: The map takes them into the city's subway tunnels, where they f
 Puzzle Solving: They use Ana's knowledge and Lola's tech to solve a puzzle related to the subway's history.
 
 Chapter 7: Echoes of Heritage
-Cultural Discovery: They stumble upon an old, forgotten community space filled with artifacts of Dominican life, giving them a new perspective on their roots.
-Reflection: Marcello reflects on his identity, feeling the absence of his father but finding strength in his heritage.
+Cultural Discovery: They stumble upon an old, forgotten community space filled with artifacts of Dominican life, including evidence of exile networks and secret meetings tied to the 1966 constitution draft.
+Reflection: Marcello reflects on his identity, feeling the absence of his father but finding strength in his heritage and the idea that his community carried the same fight for democracy across borders.
 
 Chapter 8: The Beat of Deception
 Distraction: They use a local block party and the "Bachata Beat Alert" to slip away from El Jefe's watchful eyes.
@@ -37,8 +37,8 @@ High Stakes: The map leads to a rooftop where they must solve a riddle using the
 Friendship Tested: Tensions rise, challenging their bond, but they resolve issues through communication and shared goals.
 
 Chapter 10: The Hidden Heart
-Climax: The final location is an old mansion, once a cultural hub, now filled with traps. Here, they find the treasure, which includes cultural artifacts rather than wealth.
-Revelation: They realize the treasure's value lies in its cultural significance, not money.
+Climax: The final location is an old mansion, once a cultural hub and safe space for Dominican exiles, now filled with traps. Here, they find the treasure: a hidden box containing cultural artifacts and the first draft of the 1966 Dominican constitution, written while Trujillo still cast a shadow over the island.
+Revelation: They realize the treasure's value lies in its cultural and historical significance — a document that proves their community’s resilience and the fight for democracy.
 
 Chapter 11: Dawn of Understanding
 Final Confrontation: A showdown with El Jefe's gang, where they use their gadgets and understanding of the neighborhood to de-escalate and negotiate.

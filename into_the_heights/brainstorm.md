@@ -8,12 +8,12 @@ Include:
 - Train tunnel entrance from the west side greenway( Final Adventure Area ). 
 -- Split up four way tunnel sequence. 
 
-These locations will have artifacts and seret rooms that lead them to the treasure. 
+These locations will have artifacts, secret rooms, and historical clues that lead them to the treasure — a protected draft of the 1966 Dominican constitution, hidden by exiles while Trujillo’s agents searched for it in the 1950s. 
 
 Here are some intriguing plot twists and mechanisms that can enhance a treasure hunt story like Rhythms of the Concrete Jungle:
 
 Possible Plot Twists:
-- The Treasure is a Red Herring: The group discovers that the treasure they've been hunting is not the true prize. The real treasure is something of cultural or personal significance, like documents proving land rights or a lost piece of art that represents community heritage.
+- The Treasure is a Red Herring: The group discovers that the treasure they've been hunting is not the true prize. The real treasure is the first draft of the 1966 Dominican constitution, a document that represents the fight for democracy and was hidden from Trujillo’s reach.
 
 - A Betrayal Among Friends: One of the crew members, perhaps under duress or for personal gain, betrays the group to the antagonist or another faction, only to have a change of heart later, leading to redemption.
 
