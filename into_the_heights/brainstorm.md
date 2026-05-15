@@ -18,9 +18,13 @@ Possible Plot Twists:
 - A Betrayal Among Friends: One of the crew members, perhaps under duress or for personal gain, betrays the group to the antagonist or another faction, only to have a change of heart later, leading to redemption.
 
 - The Map is Incomplete: The map they've been using turns out to be just one part of a set. They need to find or solve for the other pieces, which might involve different groups or even international travel back to the Dominican Republic.
+
 - Time-Sensitive Clue: One clue they find has a deadline attached, perhaps a date or an event that must occur for the next clue to be revealed, adding urgency to their quest.
+
 - The Antagonist's True Motive: El Jefe, presumed to be just after the treasure, is actually trying to protect something sacred to the community, misunderstood due to his methods. His actions lead to a moral dilemma for the group.
+
 - A Living Clue: They discover that one of the clues is actually a person, someone from the neighborhood who holds the next piece of the puzzle in their memory or possession, but they're reluctant or unaware.
+
 - The Treasure Changes Them: The journey changes the characters more than the treasure does, leading to personal growth, shifts in relationships, or a new understanding of their heritage, making the real treasure their transformed selves or community bonds.
 
 Mechanisms for Clues:
