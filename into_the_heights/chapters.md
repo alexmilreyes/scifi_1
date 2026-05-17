@@ -1,5 +1,3 @@
-Here's an updated outline where the setting changes to Marcello's uncle's garage, and his father worked at the Dominican Republic Consulate until his mysterious death three months ago.
-
 Chapter 1: Beats in the Garage
 Introduction: Meet Marcello, living in Washington Heights and spending most of his time in his uncle's garage. The garage is a refuge where he can escape both the grief of his father's recent death and the questions that still haunt him.
 Inciting Incident: While rummaging through old boxes in the garage, Marcello finds an intriguing map hidden in a record sleeve. The map seems connected to Dominican exiles in 1950s New York and points toward a hidden draft of the DR constitution. Marcello also finds a small note in his father's handwriting, suggesting the map was meant to be protected.
