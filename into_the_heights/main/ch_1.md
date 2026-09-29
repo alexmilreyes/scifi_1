@@ -1,6 +1,6 @@
 Chapter 1 Beats in the Garage
 
-The final bell at George Washington High always hit like somebody finally cracking a window in a hot room. One second the halls were packed tight and loud, the next the whole building seemed to let out its breath as we spilled onto Audubon Avenue in a messy wave of backpacks, Walkmans, and Friday plans. It was late spring, 1998, the kind of afternoon where the air already smelled like summer even if the calendar hadn’t caught up yet. I pushed through the front doors at 549 with my headphones on but the volume low—some rock station I’d taped off the radio the night before—so I could still hear the neighborhood waking up around me.
+The final bell at George Washington High School always hit like somebody finally cracking a window in a hot room. One second the halls were packed tight and loud; the whole building seemed to let out its breath as we spilled onto Audubon Avenue in a messy wave of backpacks, Walkmans, and Friday plans. It was late spring, 1998, the kind of afternoon where the air already smelled like summer even if the calendar hadn’t caught up yet. I pushed through the front doors at 549 with my headphones on but the volume low—some rock station I’d taped off the radio the night before—so I could still hear the neighborhood waking up around me.
 
 Spanish and English crashed together on the sidewalk the way they always did. A boombox on the corner was playing merengue loud enough to bounce off the brick. Girls from the floor below me argued over whose mixtape was better. The 1 train rumbled somewhere under the avenue. I kept my head down and my pace steady, the way I had for the last three months, trying not to look like I was hurrying and trying not to look like I was lost at the same time.
 
@@ -30,16 +30,19 @@ I sat on the cool concrete with my back against the workbench, knees drawn up, a
 Light came through the high, dusty windows in long amber strips, catching the floating motes and turning them gold. It fell across the clutter the way it always had: dented metal shelves lined with coffee cans full of screws, the cracked plastic radio that still picked up Radio WADO on a clear day, the half-finished wooden shelf my father had started for my mother’s santos and never completed. A faded Dominican flag hung crooked on the far wall, blue and red soft with age, one corner pinned with a rusted nail. Next to it, a yellowed El Diario clipping showed a parade on Broadway from years ago—flags, dancing, the kind of day that made the Heights feel like it belonged only to us.
 
 I don’t know how long I stayed like that. Long enough for the merengue to end and the silence to settle heavy across my shoulders. In that quiet I caught myself listening for the side door the way I used to—waiting for the scrape of the handle, the familiar weight of his steps, the way he’d clear his throat before he said my name like he was still deciding whether to tell me the truth or just ask if I’d eaten. For a second the old habit felt so real I almost turned my head. Then the silence stayed silence, and the door stayed shut, and the only thing that moved was the dust in the amber light.
+
 That’s when I stood up and started moving boxes. Not because Tío had asked. Because sitting still had started to feel like giving up.
 
 Most of it was junk. Broken radio parts still smelling faintly of solder. Stacks of El Diario from the early nineties, the paper soft and gray. A toolbox with half the sockets missing and a single dried bay leaf stuck to the bottom like it had ridden home from somebody’s sofrito. Then, under a crate of 45s nobody had touched in years—labels in Spanish, edges worn soft—I found the sleeve that didn’t belong.
 
 It was thicker than the others. The paper had gone the color of weak café con leche, soft and yellow at the edges the way paper does when it’s been waiting. No label, just a plain white sleeve with a faint coffee ring in one corner and a tiny tear near the bottom. I slid the record out first—some old son cubano I didn’t recognize—and felt the extra weight inside.
+
 A map.
 
 Folded neat, the creases worn smooth like someone had opened and closed it a hundred times. When I spread it on the workbench under the dusty light, the lines looked hand-drawn, careful, almost delicate. Streets I half-recognized, but older. Names that didn’t match the ones on the signs now. Little marks in the margins—stars, arrows, a few words in Spanish so faded I had to lean close and breathe slow so the dust wouldn’t rise.
 
 On the back, in my father’s handwriting, the same careful script he used on birthday cards and the lists he left on the bodega counter:
+
 This must be protected.
 
 That was all.
@@ -54,8 +57,6 @@ My chest did that tight thing it had been doing since the funeral—like somebod
 
 Tío’s voice came from the alley, calling my name over the sound of a truck backing up and the distant thump of another dembow beat. I didn’t answer. I stood up, killed the power on the turntable, and pushed the box of records back where it belonged. The map stayed in my hand, warm now from my skin.
 
-Outside, the light had gone soft and gold across the tops of the buildings. Laundry lines sagged between windows. A satellite dish pointed crooked at the sky. The big Dominican flag painted on the side of the bodega three doors down caught the late sun and held it. Same streets. Same noise. Same everything.
-
-Except now I was carrying something my father had hidden, something he said needed protecting, and the quiet in the garage finally had a name.
+Outside, the light had gone soft and gold across the tops of the buildings. Laundry lines sagged between windows. A satellite dish pointed crooked at the sky. The big Dominican flag painted on the side of the bodega three doors down caught the late sun and held it. Same streets. Same noise. Same everything. Except now I was carrying something my father had hidden, something he said needed protecting, and the quiet in the garage finally had a name.
 
 I locked the roll-up door behind me and started walking. The smell of tostones followed me down the alley. I didn’t know where I was going yet. I only knew I couldn’t leave the map there alone.
