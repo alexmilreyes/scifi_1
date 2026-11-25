@@ -4,7 +4,7 @@ The Crew Gathers
 
 I didn’t sleep much. The map stayed on the milk crate next to my bed like it might slide off and disappear if I looked away too long. Every time I closed my eyes I saw my father’s careful letters on the back—This must be protected—and the thin groove the pen had left in the paper. By the time the sky over the bridge started turning that early gray, the garage was the only place that felt steady enough to think in. I went back.
 
-The alley still held yesterday’s heat. I unlocked the side door and stepped into the closed-up air that always hit the same way: motor oil, old vinyl, the faint sweetness of dried café, and the ghost of plantains that never quite left. The Dominican flag still hung crooked on the far wall. The half-finished shelf for my mother’s santos waited in the same spot. I left the roll-up door down and set the map on the workbench under the dusty light. The record it had come from—an old 45 of Puerto Plata’s “Casita de Campo”—still sat beside it in its worn sleeve.
+The alley still held yesterday’s heat. I unlocked the side door and stepped into the closed-up air that always hit the same way: motor oil, old vinyl, the faint sweetness of dried café, and the ghost of plantains that never quite left. The Dominican flag still hung crooked on the far wall. The half-finished shelf for my mother’s santos waited in the same spot. I left the roll-up door down and set the map on the workbench under the dusty light. The record it had come from—an old 45 of “Casita de Campo”—still sat beside it in its worn sleeve.
 
 Lola showed up first. She came in carrying a paper bag with two buttered rolls from the bodega and that half-taken-apart pager still clipped to her belt loop. The screwdriver was behind her ear again. She didn’t ask what I’d decided. She just handed me a roll, sat on the edge of the workbench, and waited while the neighborhood woke up outside—someone calling up to a third-floor window, a car stereo already thumping, the metallic rattle of the 1 train somewhere under Broadway.
 
@@ -24,7 +24,7 @@ Ana spoke softly, almost to the paper. “The style looks familiar. I’ve seen 
 We stood there while the Heights kept going outside the door—kids already arguing over a basketball, the smell of frying oil drifting in from the alley, a bachata record starting up from an open window somewhere on the block. I told them the rest of it. The note. The way the map had been hidden like it was waiting. The feeling that the quiet in the garage had been holding its breath for this.
 Lola picked up the record sleeve, turned it over, then looked at me. “You still have the record itself?”
 
-I nodded and handed it to her. She slid the 45 out carefully and set it on the old turntable. The needle dropped with a soft crackle. Puerto Plata’s voice came through, warm and a little worn, singing about a little white house in the country—Casita de campo, tan blanca tan linda—a doorway, a valley under moonlight, a place that had sheltered a great love and now left the singer alone and asking when he would dream there again.
+I nodded and handed it to her. She slid the 45 out carefully and set it on the old turntable. The needle dropped with a soft crackle. The singer’s voice came through, warm and a little worn, singing about a little white house in the country—Casita de campo, tan blanca tan linda—a doorway, a valley under moonlight, a place that had sheltered a great love and now left the singer alone and asking when he would dream there again.
 
 Nobody spoke while it played. When the song ended, Ana was the one who said it.
 
@@ -48,6 +48,6 @@ Nobody argued. That was the part that stayed with me. They just started talking 
 
 The garage, with its oil smell and the crooked flag and the half-finished shelf, became the place we would come back to.
 By the time the light through the high windows had shifted from amber to plain afternoon, we had a first stop. The heavy mark on the map sat farther north, near Broadway and 204th—right by the old Dyckman Farmhouse, the last little country house left standing in this part of the city. If the map and the song were telling the truth together, something about that ground still mattered.
-We locked the roll-up door behind us and stepped into the alley. The smell of tostones was already thick in the air. Somewhere a radio was playing, but it wasn’t Puerto Plata this time. I kept the map folded inside my jacket, close against my side, and the copied lyrics stayed in Ana’s book.
+We locked the roll-up door behind us and stepped into the alley. The smell of tostones was already thick in the air. Somewhere a radio was playing, but it wasn’t that song this time. I kept the map folded inside my jacket, close against my side, and the copied lyrics stayed in Ana’s book.
 
 For the first time since the funeral, the day ahead felt like it belonged to something larger than the quiet I’d been carrying around. We started walking.

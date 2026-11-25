@@ -5,7 +5,7 @@ Age: 17
 Background: Born and raised in Washington Heights, Marcello is a first-generation American with Dominican parents. He's torn between his cultural roots and the modern American life he's living. His father works at the Dominican Republic Consulate, which gives Marcello a personal connection to the island's politics and exile community.
 Role: The protagonist, Marcello's journey is central to the narrative. His discovery of the map sparks the adventure, and his motivation is deeply tied to saving his family's bodega while exploring his identity. His love for both rock and Dominican music symbolizes his cultural duality.
 Skills/Traits: Curious, resourceful, and empathetic. His understanding of the neighborhood's culture, history, and family stories is pivotal in solving the treasure’s clues.
-Contribution: Marcello embodies the theme of cultural fusion and the struggle of identity in a melting pot like NYC. His leadership brings the group together and shows how personal history can connect to larger political history — especially when the treasure is a draft of the 1966 Dominican constitution.
+Contribution: Marcello embodies the theme of cultural fusion and the struggle of identity in a melting pot like NYC. His leadership brings the group together and shows how personal history can connect to larger political history — especially when the treasure is a draft of the 1963 Dominican constitution.
 
 Lola
 Age: 16
@@ -24,7 +24,7 @@ Contribution: Carlos represents the raw, unfiltered voice of the streets, showin
 Ana
 Age: 17
 Background: A new friend to the group, Ana moved to Washington Heights from Queens. Her family has roots in both Cuba and El Salvador, giving her a unique perspective on Latin identity.
-Role: The historian and somewhat the heart of the group, Ana's knowledge of local and Latino history is vital. She's often the one who connects the dots between the clues and the broader cultural narrative, especially the Trujillo-era exile politics that created the draft constitution’s hiding place.
+Role: The historian and somewhat the heart of the group, Ana's knowledge of local and Latino history is vital. She's often the one who connects the dots between the clues and the broader cultural narrative, especially the post-1963 exile politics that created the draft constitution’s hiding place.
 Skills/Traits: Passionate about history, with a gentle, insightful nature. Her ability to see the bigger picture helps the group understand the significance of their quest beyond the treasure itself.
 Contribution: Ana embodies the preservation of history and memory. She ensures that the adventure isn't just about finding treasure but about understanding how the past shaped their present, enriching the group’s sense of identity and purpose.
 

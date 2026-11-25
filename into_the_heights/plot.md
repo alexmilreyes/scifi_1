@@ -15,13 +15,13 @@ Washington Heights, NYC. A vibrant Dominican neighborhood where Marcello lives w
 
 ### Inciting Incident: The Map
 While rummaging through old boxes in the garage, Marcello discovers:
-- A hidden map in a record sleeve, seemingly connected to Dominican exiles in 1950s New York
+- A hidden map in a record sleeve, seemingly connected to the Dominican exile network in New York
 - A small note in his father's handwriting with the cryptic phrase: "This must be protected"
-- The map appears to point toward a hidden draft of the 1966 Dominican constitution
+- The map appears to point toward a hidden draft of the 1963 Dominican constitution
 
 ### The Prize & Its History
-- The treasure is an early draft of the 1966 Dominican constitution — a symbol of democracy written after Trujillo's death and secretly protected by Dominican exiles in New York
-- During the 1950s, Trujillo-era agents searched NYC for dissident documents; Dominican exiles hidden the draft to preserve it from the dictator's reach
+- The treasure is an early draft of the 1963 Dominican constitution — Juan Bosch's liberal constitution, approved April 29, 1963, a symbol of democracy written after Trujillo's death and secretly protected by Dominican exiles in New York
+- After Bosch was overthrown in the September 1963 coup, the draft was smuggled to New York and hidden by the exile network; the post-coup military junta hunted it through the 1965 civil war, when restoring the 1963 constitution was the Constitutionalists' aim
 - Marcello's father, who worked at the Dominican Republic Consulate, was involved in protecting this document
 
 ---
@@ -35,7 +35,7 @@ Marcello gathers three trusted allies:
 
 **Carlos, 18** — Marcello's cousin from the Bronx. Street-smart and connected to hip-hop and graffiti culture, he knows the city's territories and gang dynamics. His graffiti art can serve as coded markers linked to the old exile network.
 
-**Ana, 17** — A historian and new friend from Queens with Cuban and Salvadoran heritage. She possesses deep knowledge of Dominican history and exile politics in NYC, often connecting clues to the larger cultural narrative. She has researched the Morris-Jumel Mansion's Living Landscape project, giving her direct access to the mansion’s archives and the community stories that link early Caribbean history to modern Dominican identity.
+**Ana, 17** — A historian and new friend from Queens with Cuban and Salvadoran heritage. She possesses deep knowledge of Dominican history and exile politics in NYC, often connecting clues to the larger cultural narrative. She has researched the Morris-Jumel Mansion's archives, giving her direct access to the mansion’s records and the community stories that link early Caribbean history to modern Dominican identity.
 
 ### The Mission
 They meet in the uncle's garage—their planning base and emotional anchor—and decide to follow the map for three reasons:
@@ -78,7 +78,7 @@ Using Ana's historical knowledge and Lola's tech, they decode the tunnel clues.
 ### Chapter 7: The Community Space Discovery
 They discover an old, forgotten community space filled with:
 - Artifacts of Dominican life
-- Evidence of exile networks and secret meetings tied to the 1966 constitution draft
+- Evidence of exile networks and secret meetings tied to the 1963 constitution draft
 - Personal stories and legacy clues from people who protected the document
 
 Marcello experiences a turning point: He realizes his father died because he was trying to protect the same document they're now chasing.
@@ -107,9 +107,9 @@ The map leads them to a rooftop where they must solve a riddle using NYC's skyli
 ### Chapter 10: The Hidden Heart
 The final location is the Morris-Jumel Mansion in Washington Heights:
 - A historic site with strong Hispaniola ties, from Juan Rodriguez's early Santo Domingo origins to Stephen Jumel's Caribbean refugee background
-- Once a cultural hub and safe space for Dominican exiles, and today part of the Living Landscape project that connects the mansion's colonial past to modern Dominican-American stories
+- Once a cultural hub and safe space for Dominican exiles, a museum today that connects the mansion's colonial past to modern Dominican-American stories
 - Now filled with traps and guardians
-- Inside is a hidden box containing cultural artifacts and the first draft of the 1966 Dominican constitution
+- Inside is a hidden box containing cultural artifacts and the first draft of the 1963 Dominican constitution
 
 **The Letter**: Inside the box, they find a hidden letter from Marcello's father explaining:
 - Why he hid the draft
